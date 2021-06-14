@@ -1,2 +1,1 @@
-# WheatageLive
-the script XD
+SHARING UR PASSWORD WILL GET U BLACKLISTED!!!!
